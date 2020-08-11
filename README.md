@@ -1,3 +1,3 @@
 # Captain-Hook
 
-Welcome to the jngle
+Welcome to the jungle
